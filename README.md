@@ -31,7 +31,7 @@ is the availability of databases of all known leaks and hacks. This is a great o
 to evaluate its functionality without cost. Does not require any personal data for
 activation, such as entering your phone number
 
-Translated with DeepL.com (free version)
+
 
 
 
