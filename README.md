@@ -17,10 +17,7 @@
 
 
 
-
-
-
-Want to quickly punch in the phone number, VIN-code of the car, find the owner of Telegram or VKontakte? I found for you the best bot in this field, nothing to download and register, you already have everything right in Telegram. We are testing all tools so that you can find the information you need for 1 click.  
+  Want to quickly punch in the phone number, VIN-code of the car, find the owner of Telegram or VKontakte? I found for you the best bot in this field, nothing to download and register, you already have everything right in Telegram. We are testing all tools so that you can find the information you need for 1 click.  
 
 
 
